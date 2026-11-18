@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: gmail
 - 😄 Pronouns: he
 - ⚡ Fun fact: seviilla is gonna win the derby on saturday
-- Estoy con el cuipas haciendo otra practica de computaichon
+- Estoy con el cuipas haciendo otra practica de computaichon, 3 hour session training
