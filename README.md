@@ -14,3 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: he
 - ⚡ Fun fact: seviilla is gonna win the derby on saturday
 - Estoy con el cuipas haciendo otra practica de computaichon, 3 hour session training
+- He creado la 3ª rama, estoy utilizándola ahora mismo.
+- José Manuel no ha traído la tarea hecha
